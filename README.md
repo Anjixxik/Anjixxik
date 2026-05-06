@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @Anjixxik
-- 😄 Pronouns: shut/dahelup
-- ⚡ Fun fact: you are gay even tho you may not know yet
+<<<<< T I D A L <<<<<<<<<<<<
+>>>>>>>>>>>>>> W A V E >>>>>
